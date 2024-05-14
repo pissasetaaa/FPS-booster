@@ -4,5 +4,5 @@ Idea from:Niksi
 
 Discord:niksiiii1
 
-Github:https://github.com/n1ks1213
+Github:https://github.com/N1ks1
 
